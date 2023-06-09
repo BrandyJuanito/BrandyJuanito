@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BrandyJuanito
-- 👀 I’m interested in rich
+- 👀 I’m interested in being rich
 - 🌱 I’m currently learning how to code myself to be rich
 - 💞️ I’m looking to collaborate on being rich
 - 📫 How to reach me is by being rich
